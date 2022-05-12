@@ -4,5 +4,4 @@ India is a decmocracy
 America is a decmocracy
 Pakistan is not a democracy
 ykgllljuyk
-futy itytdtuyiyu
-sdljrjffhlsd;fgh;a
+fggjkkl
